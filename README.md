@@ -1,4 +1,4 @@
-## hiiiiii
+## names killbricks, nice to meet u, thanks for visiting my strawpage!! 
 
 <!--
 **killbrickedd/killbrickedd** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
