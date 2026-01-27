@@ -1,4 +1,4 @@
-## names killbricks, nice to meet u, thanks for visiting my github! 
+## names spire, nice to meet u, thanks for visiting my github! 
 pls sing my ata and strawpage, i would be very grateful! links in da profile 
 <!--
 **killbrickedd/killbrickedd** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
