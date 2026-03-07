@@ -1,4 +1,4 @@
-![gif](https://i.pinimg.com/originals/da/68/5c/da685c21e4f555bad69f52593c221dc7.gif)
+![gif](https://i.pinimg.com/originals/76/8a/84/768a84a3bb09bf71a2668dbe04523496.gif)
 <!--ʷᵉˡᶜᵒᵐᵉ
  ᵗᵒ ᵐʸ ᵖᵃᵍᵉ
 **killbrickedd/killbrickedd** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
