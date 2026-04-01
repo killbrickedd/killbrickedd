@@ -1,1 +1,1 @@
-i dont KNOW the fuck is wrong whit github readme right now, but I CAN'T paste gifs. sight, probably the funniest read me you will encounter out in the while, huh?
+<img src="https://static.wikia.nocookie.net/movieunleashers/images/4/46/Chespin.png/revision/latest/scale-to-width-down/1200?cb=20250202153155" alt="Alt text" width="500">
