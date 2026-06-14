@@ -3,11 +3,10 @@
  ‎ꫂ᭪݁ . 𝓌𝑒𝓁𝒸𝑜𝓂𝑒    
      
 
+ 
+<img width="355" height="464" alt="h" src="https://github.com/user-attachments/assets/8d97d45e-b271-4ac6-9236-858101f2b5b6" />
 
-<img width="1000" height="600" alt="descarga (58)" src="https://github.com/user-attachments/assets/00da4f40-9a2e-48c7-950d-45f081ad4c93" />
 
-
-<img width="240" height="240" alt="descarga (59)" src="https://github.com/user-attachments/assets/be5c9139-f568-4a8d-89bd-4c23772e9f58" />
 
 
 ![](https://komarev.com/ghpvc/?username=your-github-username&color=yellow&style=plastic&label=people+whit+swag)
