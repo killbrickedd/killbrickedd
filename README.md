@@ -10,7 +10,7 @@
 <img width="240" height="240" alt="descarga (59)" src="https://github.com/user-attachments/assets/be5c9139-f568-4a8d-89bd-4c23772e9f58" />
 
 
-![](https://komarev.com/ghpvc/?username=your-github-username&color=brightgreen&style=plastic&label=awesome+people)
+![](https://komarev.com/ghpvc/?username=your-github-username&color=yellow&style=plastic&label=people+whit+swag)
 
 
 ❤
