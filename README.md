@@ -1,8 +1,6 @@
 
      
 
- 
-<img width="197" height="292" alt="animal-hospital" src="https://github.com/user-attachments/assets/2f39d354-d43e-4b3b-a295-17c142f48b60" />
 
 
 
